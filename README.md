@@ -4,7 +4,7 @@
 - 💞️ atualmente estou colaborando em[eric cartman]https://media.tenor.com/jPDzlkJj1ZsAAAAi/shocked-eric-cartman.gif
 - 📫 pra entrar em contato comigoo, mande um email para: lucas.silva.ferreira21@escola.pr.gov.br
 - 😄 ele/dele
-- ⚡ Fun fact: ...
+- ⚡ gosto muito de ler
 
 <!---
 LucasRian69/LucasRian69 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
