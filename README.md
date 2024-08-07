@@ -2,7 +2,7 @@
 - 👀 eu estou interessado em aprender mais sobre programação
 - 🌱 atualmente eu estou aprendendo sobre paginas na web
 - 💞️ atualmente estou colaborando em[eric cartman]https://media.tenor.com/jPDzlkJj1ZsAAAAi/shocked-eric-cartman.gif
-- 📫 pra entrar em contato comigoo, mande um email para: lucas.silva.ferreira21@escola.pr.gov.br
+- 📫 pra entrar em contato comigo, mande um email para: lucas.silva.ferreira21@escola.pr.gov.br
 - 😄 ele/dele
 - ⚡ gosto muito de ler [livros]https://media.tenor.com/eV6EtQv7nl0AAAAj/pwned-3-aeternae-memori-reading.gif
 
