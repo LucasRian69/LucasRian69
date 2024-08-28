@@ -1,4 +1,4 @@
-- 👋 ola,eu sou @LucasRian69
+- 👋 ola,eu sou @LucasRian69[eu]https://drive.google.com/file/d/125lyojg8nLsu5rwNGE_4Pkz0JGx1q7R0/view?usp=drive_link
 - 👀 eu estou interessado em aprender mais sobre programação
 - 🌱 atualmente eu estou aprendendo sobre paginas na web
 - 💞️ atualmente estou colaborando em[eric cartman]https://media.tenor.com/jPDzlkJj1ZsAAAAi/shocked-eric-cartman.gif
